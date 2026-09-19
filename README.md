@@ -6,6 +6,8 @@
 
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀⠀[straw](https://shinjualastor.straw.page:) ᨳଓ [ata](https://shinjuwerty.atabook.org/)
 
+⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ **scroll down for more links!!**
+
 
 
 <img width="1048" height="1048" alt="Image" src="https://github.com/user-attachments/assets/a786d5b6-f6cf-411c-bd81-091755533a97" />
