@@ -6,6 +6,8 @@
 
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀⠀[straw](https://shinjualastor.straw.page:) ᨳଓ [ata](https://shinjuwerty.atabook.org/)
 
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀⠀yo bro follw me PLEASE MY ALT HAS OVER ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀200 FOLLOWS BUT THIS ONE IS SO FRIED?
+
 ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀ ⠀⠀ **scroll down for more links!!**
 
 
