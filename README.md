@@ -1,2 +1,6 @@
-dieieidie github why r u so hard to code
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀ ⠀ ⠀ ⠀ ⠀![](https://komarev.com/ghpvc/?username=shinjuwerty&label=ㅤㅤㅤ+๓ฯ+hคrēŞ+ㅤㅤ&color=FAE3FF)
+$${\color{lightpink}welcome}$$
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀ ⠀ ⠀ㅤㅤㅤㅤㅤㅤ⠀ ㅤㅤ ⠀ ⠀![](https://komarev.com/ghpvc/?username=shinjuwerty&label=my+hares&color=FAE3FF)
+
+
+<img width="1280" height="1280" alt="Image" src="https://github.com/user-attachments/assets/1aab1e9d-fb03-4e5b-89c3-25a50bf90799" />
