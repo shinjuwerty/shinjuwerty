@@ -52,3 +52,6 @@
 
 
 ⠀ ⠀ ⠀ ⠀ [prns.page](https://en.pronouns.page/@shinjuwerty)⠀⠀ ⠀ ⠀ ⠀ ⠀<img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/fe6b1225-0b39-4bd1-bd2b-8f726e3f39c0" />
+
+
+I’ll be changing these soon to megumi and overall more stuff!!
