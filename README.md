@@ -5,4 +5,4 @@ $${\color{lightblue}welcome}$$
 
 ㅤㅤㅤㅤㅤㅤ<img width="670" height="670" alt="Image" src="https://github.com/user-attachments/assets/9a7d0801-3760-4163-8786-71a3350a75ad" />
 
-———————————————ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤidk myself bro pls int tho I'm very lonelyㅤㅤㅤㅤㅤㅤㅤ———————————
+———————————————ㅤㅤㅤㅤㅤㅤㅤㅤidk myself bro pls int tho I'm very lonelyㅤㅤㅤㅤㅤㅤㅤ———————————
