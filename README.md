@@ -9,3 +9,5 @@ $${\color{lightblue}welcome}$$
 
 
 ㅤㅤㅤㅤㅤㅤㅤ——————— [dummy 1](https://github.com/TheSanctuaryOfYourShadows) ♡ [dummy 2](https://github.com/twelvhours) ♡ [dummy 3](https://github.com/THEHEAVENOFR0SES) ———————
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ——————— art [comms](https://shinjusugoii.straw.page) ! ———————
