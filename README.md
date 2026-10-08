@@ -1,9 +1,9 @@
-$${\color{lightblue}welcome}$$
+$${\color{red}welcome}$$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀ ⠀ ㅤㅤㅤ⠀⠀![](https://komarev.com/ghpvc/?username=shinjuwerty&label=my+hares&color=8FAFC9)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀ ⠀ ㅤㅤㅤ⠀⠀![](https://komarev.com/ghpvc/?username=shinjuwerty&label=my+hares&color=red)
 
 
-ㅤㅤㅤㅤㅤㅤ<img width="670" height="670" alt="Image" src="https://github.com/user-attachments/assets/9a7d0801-3760-4163-8786-71a3350a75ad" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="335" height="342" alt="Image" src="https://github.com/user-attachments/assets/4cb69fd0-5987-4f08-a74a-09729e747858" />
 
 ———————ㅤidk myself bro pls int if u respect my dni's bcs I'm very lonelyㅤ———————
 
