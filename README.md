@@ -8,4 +8,4 @@ $${\color{red}welcome}$$
 ———————ㅤidk myself bro pls int if u respect my dni's bcs I'm very lonelyㅤ———————
 
 
-ㅤㅤㅤㅤㅤㅤㅤ——————— [dummy 1](https://github.com/TheSanctuaryOfYourShadows) ♡ [dummy 2]([https://github.com/vincentsdiary]) ♡ [dummy 3](https://github.com/THEHEAVENOFR0SES) ———————
+ㅤㅤㅤㅤㅤㅤㅤ——————— [dummy 1](https://github.com/TheSanctuaryOfYourShadows) ♡ [dummy 2](https://github.com/vincentsdiary) ♡ [dummy 3](https://github.com/THEHEAVENOFR0SES) ———————
